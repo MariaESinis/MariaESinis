@@ -11,5 +11,7 @@
   Etec Bartolomeu Bueno da Silva - Anhanguera
   Técnico em Informática para Internet - Integrado ao Ensino médio
   2022 - 2024 (Cursando 2º ano)
-
+  
+  Contato:
+  eduarda.sinis@gmail.com
   
