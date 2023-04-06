@@ -9,6 +9,7 @@
   Formação Acadêmica:
   - CEETPS- Centro Estadual de Educação Tecnólogica Paula Souza
   Etec Bartolomeu Bueno da Silva - Anhanguera
+  <br>
   Técnico em Informática para Internet - Integrado ao Ensino médio
   2022 - 2024 (Cursando 2º ano)
 
