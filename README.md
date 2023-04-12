@@ -4,7 +4,7 @@
 
 
   Experiência:
-  - Consultoria de Marketing - AL esquadrias 2022 -
+  - Consultoria de Marketing - AL esquadrias 2023 -
 
   Formação Acadêmica:
   - CEETPS- Centro Estadual de Educação Tecnólogica Paula Souza
