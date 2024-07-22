@@ -10,7 +10,7 @@
   - CEETPS- Centro Estadual de Educação Tecnólogica Paula Souza
   Etec Bartolomeu Bueno da Silva - Anhanguera
   Técnico em Informática para Internet - Integrado ao Ensino médio
-  2022 - 2024 (Cursando 2º ano)
+  2022 - 2024 (Cursando 3º ano)
   
   Contato:
   eduarda.sinis@gmail.com
